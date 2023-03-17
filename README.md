@@ -1,2 +1,0 @@
-# sansfightforschool
-school
